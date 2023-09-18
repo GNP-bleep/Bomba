@@ -1,0 +1,1 @@
+# KalkulatorVer12CT
